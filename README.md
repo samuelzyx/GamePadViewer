@@ -14,18 +14,34 @@ Who I Am?
 🙌 We don't consider ourselves professionals, we just want to meet people from other parts of the world and share this passion for videogames, among other hobbies, like drawing, cooking, etc, well, actually we like to do everything.
 
 💳 Direct donations: https://streamelements.com/tevacarnal/tip
+
+
 💸 Dlive 1% devolución de dinero en su donación: https://dlive.tv/?ref=tevacarnal
 
 🎥 Follow us and don't miss another chapter:
 🟣 Twitch: https://www.twitch.tv/tevacarnal
+
+
 🔴 Youtube: https://www.youtube.com/channel/UCbQ1JI_7PumNrW9iZkVR-yw
+
+
 🔵 Facebook: https://www.facebook.com/TeVaCarnal
+
+
 
 😏 Find more fun here:
 🟧 Kwai: https://s.kwai.app/s/ehfxdqZ6
+
+
 ⬜ Tiktok: https://vm.tiktok.com/TeVaCarnal
+
+
 🟨 Instagram: http://instagram.com/TeVaCarnal
+
+
 🟦 Twitter: https://twitter.com/TeVaCarnal
+
+
 🟪 Discord: https://discord.gg/8hdFdYAj4F
 
 📆 Broadcast schedules:
