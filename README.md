@@ -17,14 +17,9 @@ Who I Am?
 💸 Dlive 1% devolución de dinero en su donación: https://dlive.tv/?ref=tevacarnal
 
 🎥 Follow us and don't miss another chapter:
-🔴 Youtube: https://www.youtube.com/channel/UCbQ1JI_7PumNrW9iZkVR-yw
-🟠 Booyah: https://booyah.live/channels/75566926
-🟡 Dlive: https://dlive.tv/TeVaCarnal
-⚪ Dailymotion: https://www.dailymotion.com/tevacarnal
-🟢 Trovo: https://trovo.live/TeVaCarnal
-🔵 Facebook: https://www.facebook.com/TeVaCarnal
 🟣 Twitch: https://www.twitch.tv/tevacarnal
-⚫ Steam: https://steamcommunity.com/broadcast/watch/tevacarnal
+🔴 Youtube: https://www.youtube.com/channel/UCbQ1JI_7PumNrW9iZkVR-yw
+🔵 Facebook: https://www.facebook.com/TeVaCarnal
 
 😏 Find more fun here:
 🟧 Kwai: https://s.kwai.app/s/ehfxdqZ6
